@@ -1,0 +1,1 @@
+# haftalik_sepet_legal
